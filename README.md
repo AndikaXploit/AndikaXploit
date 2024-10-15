@@ -4,7 +4,7 @@
 
 ## About me
 
-- ✨ Creating bugs since 2018
+- ✨ Creating bugs since 2019
 - 📚 I'm currently learning english <img src="images/Aspose.Words.18e7deeb-458b-4265-acc3-abad05277e2c.001.jpeg" width="17" />  and bughunter 🐳
 - 🎯 Goals: live in a cold place ❄ and speak indonesia 🚀
 - 🎲 And ... i play 🎮 game and 🏍️ Touring
